@@ -20,6 +20,6 @@ Cara Import SQL:
 Membutuhkan Software Engineer/ Software Developer untuk Projects Teknologi?
 
 Kontak saya:
-1.[Linkedin](https://wwww.linkedin.com/in/ananda-rauf-maududi-)
-2.[Instagram](https://wwww.instagram.com/anandaraufm00)
-3.[Chat Whatsapp](https://www.wa.me/6285692060498)
+1.[Linkedin](https://www.linkedin.com/in/ananda-rauf-maududi-)
+2.[Instagram](https://www.instagram.com/anandaraufm00)
+3.[Chat Whatsapp](https://wa.me/6285692060498)
